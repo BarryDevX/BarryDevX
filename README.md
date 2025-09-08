@@ -3,7 +3,7 @@
 👨‍💻 **Student in Application Development & Administration**  
 💻 **Passionate about Web, Mobile & Software Development**  
 📍 Dakar, Senegal  
-📫 Contact: techdev1010@gmail.com 
+📫 Contact: thierno.barry.dev@gmail.com 
 
 ----
 
